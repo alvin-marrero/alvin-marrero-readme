@@ -21,4 +21,4 @@ _I'm a cybersecurity major at UT San Antonio, currently enrolled in the Unlockin
 _"Live everyday like it was your last because someday it will be!"_
 
 
-_"There are no strangers, just Friends I haven't met yet!"_
+_"Strangers are simply friends waiting to be discovered."_
