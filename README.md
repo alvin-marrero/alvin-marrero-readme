@@ -19,4 +19,6 @@ _I'm a cybersecurity major at UT San Antonio, currently enrolled in the Unlockin
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?logo=linkedin&logoColor=white)](https://linkedin.com/in/alvin-marrero)
 
 _"Live everyday like it was your last because someday it will be!"_
+
+
 _"There are no strangers, just Friends I haven't met yet!"_
